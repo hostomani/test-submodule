@@ -2,7 +2,3 @@
 
 asdasdasdnjknjknjknjk
 
-as
-d
-as
-d
